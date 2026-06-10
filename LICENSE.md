@@ -1,4 +1,4 @@
-# 
+# VIP Mem0 ferramentas. Com autonomia de agentes e suporte multilíngue — otimizado para máximo desempenho e eficiência.
 
 
 
